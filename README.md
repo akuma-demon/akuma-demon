@@ -1,4 +1,4 @@
-### ~ 💫 𝓦𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓶𝔂 𝓟𝓻𝓸𝓯𝓲𝓵𝓮✨ 🤍 ~
+### 💫 𝓦𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓶𝔂 𝓟𝓻𝓸𝓯𝓲𝓵𝓮✨ 🤍
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/YNjq368/Jellal-Fernandes.gif" alt="Jellal-Fernandes" border="0"></a>
 <h1 align="center">💫𝓗𝓲, 𝓲'𝓶 𝓪𝓴𝓾𝓶𝓪</h1>

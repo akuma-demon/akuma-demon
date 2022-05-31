@@ -37,4 +37,4 @@
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/fxfcfjm/download.gif" alt="download" border="0"></a>
 
-## Have A Great day see ya 💫✌
+## Have A Great day see ya 💫

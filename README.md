@@ -33,7 +33,7 @@
 
 
 ## Follow me on ( ꈍᴗꈍ)
-**Github** [<img src="https://img.icons8.com/nolan/240/github.png" alt='github' height='32'>](https://github.com/akumasugi) | **Instagram** [<img src="https://img.icons8.com/nolan/240/instagram-new.png" alt='instagram' height='32'>]([https://www.instagram.com/akuma__24/?hl=en]) | **YouTube** [<img src="https://img.icons8.com/nolan/240/youtube.png" alt='YouTube' height='32'>]([https://www.youtube.com/channel/UChrGVH0nOxMg6zk6YAr2TXg])
+**Github** [<img src="https://img.icons8.com/nolan/240/github.png" alt='github' height='32'>](https://github.com/akumasugi) | **Instagram** [<img src="https://img.icons8.com/nolan/240/instagram-new.png" alt='instagram' height='32'>](https://www.instagram.com/akuma__24/) | **YouTube** [<img src="https://img.icons8.com/nolan/240/youtube.png" alt='YouTube' height='32'>](https://www.youtube.com/channel/UChrGVH0nOxMg6zk6YAr2TXg)
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/fxfcfjm/download.gif" alt="download" border="0"></a>
 

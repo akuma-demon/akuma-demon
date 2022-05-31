@@ -17,14 +17,14 @@
 <p align="left"> <a href="https://github-profile-trophy.vercel.app/?username=ryo-ma&no-frame=true
 
 <img src="https://github-profile-trophy.vercel.app/?username=akumasugi" alt="akumasugi" /></a> </p>
+  
+ 
 <img align="right" alt="count" src="https://count.getloli.com/get/@:akumasugi?theme=rule34">
-
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/YNjq368/Jellal-Fernandes.gif" alt="Jellal-Fernandes" border="0"></a>
-
-
-
-
+  
+ 
 [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=0bayzsrvnvivnrnxg4te2b1vb&cover_image=true&theme=default)](https://github.com/akumasugi/akumasugi)
+  
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/YNjq368/Jellal-Fernandes.gif" alt="Jellal-Fernandes" border="0"></a>
 
 <img src="https://github-readme-stats.vercel.app/api?username=akumasugi&show_icons=true&theme=blue&show_owner=true&count_private=true">
 

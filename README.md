@@ -1,7 +1,7 @@
 ### ~ 💫 𝓦𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓶𝔂 𝓟𝓻𝓸𝓯𝓲𝓵𝓮✨ 🤍 ~
 
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/F31p1n9/Fairy-Tail-Gifs-Gif-Abyss.gif" alt="Fairy-Tail-Gifs-Gif-Abyss" border="0"></a>
-<h1 align="center">💫Ｈｉ, Ｉ＇ｍ ａｋｕｍａ</h1>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/YNjq368/Jellal-Fernandes.gif" alt="Jellal-Fernandes" border="0"></a>
+<h1 align="center">💫𝓗𝓲, 𝓲'𝓶 𝓪𝓴𝓾𝓶𝓪</h1>
 <h3 align="center">| 𝐋𝐞𝐚𝐫𝐧𝐞𝐫 | 𝐒𝐭𝐮𝐝𝐞𝐧𝐭 |</h3>
 
 - 😈 𝐃𝐞𝐦𝐨𝐧 𝐋𝐨𝐫𝐝 !!
@@ -23,7 +23,7 @@
 <img align="right" alt="count" src="https://count.getloli.com/get/@:akumasugi?theme=rule34">
   
 
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/YNjq368/Jellal-Fernandes.gif" alt="Jellal-Fernandes" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/F31p1n9/Fairy-Tail-Gifs-Gif-Abyss.gif" alt="Fairy-Tail-Gifs-Gif-Abyss" border="0"></a>
   
 [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=0bayzsrvnvivnrnxg4te2b1vb&cover_image=true&theme=default)](https://github.com/akumasugi/akumasugi)
 

@@ -1,4 +1,4 @@
-### 💫 𝓦𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓶𝔂 𝓹𝓻𝓸𝓯𝓲𝓵𝓮 ✨ 🤍
+### ~ 💫 𝓦𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓶𝔂 𝓟𝓻𝓸𝓯𝓲𝓵𝓮✨ 🤍 ~
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/F31p1n9/Fairy-Tail-Gifs-Gif-Abyss.gif" alt="Fairy-Tail-Gifs-Gif-Abyss" border="0"></a>
 <h1 align="center">💫Ｈｉ, Ｉ＇ｍ ａｋｕｍａ</h1>

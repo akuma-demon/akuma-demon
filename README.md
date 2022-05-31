@@ -1,6 +1,7 @@
-### 💫 𝐖𝐞𝐥𝐜𝐨𝐦𝐞 𝐭𝐨 𝐦𝐲 𝐩𝐫𝐨𝐟𝐢𝐥𝐞 ✨ 🤍
+### 💫 𝓦𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓶𝔂 𝓹𝓻𝓸𝓯𝓲𝓵𝓮 ✨ 🤍
+
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/F31p1n9/Fairy-Tail-Gifs-Gif-Abyss.gif" alt="Fairy-Tail-Gifs-Gif-Abyss" border="0"></a>
-<h1 align="center">ʜɪ 👋, ɪ'ᴍ 𝐚𝐤𝐮𝐦𝐚. ᴜsᴇʀɴᴀᴍᴇ- akumasugi</h1>
+<h1 align="center">💫Ｈｉ, Ｉ＇ｍ ａｋｕｍａ</h1>
 <h3 align="center">| 𝐋𝐞𝐚𝐫𝐧𝐞𝐫 | 𝐒𝐭𝐮𝐝𝐞𝐧𝐭 |</h3>
 
 - 😈 𝐃𝐞𝐦𝐨𝐧 𝐋𝐨𝐫𝐝 !!

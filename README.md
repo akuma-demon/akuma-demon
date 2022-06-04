@@ -1,7 +1,14 @@
-### 💫 𝓦𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓶𝔂 𝓟𝓻𝓸𝓯𝓲𝓵𝓮✨ 🤍
+## <!-- Typing SVG -->
+<p align="center">
+    <a href="https://git.io/J0hKr">
+        <img
+        src="https://readme-typing-svg.herokuapp.com?size=30&width=800&lines=𝓚𝓸𝓷𝓷𝓲𝓬𝓱𝓲𝔀𝓪+𝓦𝓮𝓵𝓬𝓸𝓶𝓮+𝓣𝓸+𝓶𝔂+𝓟𝓻𝓸𝓯𝓲𝓵𝓮..."
+            alt="Typing SVG"
+        />
+    </a>
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/YNjq368/Jellal-Fernandes.gif" alt="Jellal-Fernandes" border="0"></a>
-<h1 align="center">💫𝓗𝓲, 𝓲'𝓶 𝓪𝓴𝓾𝓶𝓪</h1>
+# 𝓗𝓲, 𝓲'𝓶 𝓐𝓴𝓾𝓶𝓪  <a href="https://imgbb.com/"><img src="https://i.ibb.co/F3hLKcX/download.gif" alt="download" border="0"></a>
 <h3 align="center">| 𝐋𝐞𝐚𝐫𝐧𝐞𝐫 | 𝐒𝐭𝐮𝐝𝐞𝐧𝐭 |</h3>
 
 - 😈 𝐃𝐞𝐦𝐨𝐧 𝐋𝐨𝐫𝐝 !!
@@ -23,18 +30,21 @@
 <img align="right" alt="count" src="https://count.getloli.com/get/@:akumasugi?theme=rule34">
   
 
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/F31p1n9/Fairy-Tail-Gifs-Gif-Abyss.gif" alt="Fairy-Tail-Gifs-Gif-Abyss" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/hcXRCxw/download-1.gif" alt="download-1" border="0"></a>
   
 [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=0bayzsrvnvivnrnxg4te2b1vb&cover_image=true&theme=default)](https://github.com/akumasugi/akumasugi)
 
 <img src="https://github-readme-stats.vercel.app/api?username=akumasugi&show_icons=true&theme=blue&show_owner=true&count_private=true">
+  
+  
 
-<p><img align="left" src="https://github-readme-stats.vercel.app/api/top-langs?username=akumasugi&show_icons=true&locale=en&layout=compact" alt="akumasugi" /></p>
+  
+  
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/drPWFVz/Wiffle-Gif.gif" alt="Wiffle-Gif" border="0"></a>
 
 
-## Follow me on ( ꈍᴗꈍ)
+## 𝓕𝓸𝓵𝓵𝓸𝔀 𝓶𝓮 𝓸𝓷 ( ꈍᴗꈍ)
 **Github** [<img src="https://img.icons8.com/nolan/240/github.png" alt='github' height='32'>](https://github.com/akumasugi) | **Instagram** [<img src="https://img.icons8.com/nolan/240/instagram-new.png" alt='instagram' height='32'>](https://www.instagram.com/akuma__24/) | **YouTube** [<img src="https://img.icons8.com/nolan/240/youtube.png" alt='YouTube' height='32'>](https://www.youtube.com/channel/UChrGVH0nOxMg6zk6YAr2TXg)
 
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/fxfcfjm/download.gif" alt="download" border="0"></a>
 
-## Have A Great day see ya 💫
+## 𝓗𝓪𝓿𝓮 𝓪 𝓰𝓻𝓮𝓪𝓽 𝓭𝓪𝔂 𝓼𝓮𝓮 𝔂𝓪 💫

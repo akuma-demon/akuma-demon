@@ -8,7 +8,7 @@
     </a>
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/YNjq368/Jellal-Fernandes.gif" alt="Jellal-Fernandes" border="0"></a>
-# 𝓗𝓲, 𝓲'𝓶 𝓐𝓴𝓾𝓶𝓪  <a href="https://imgbb.com/"><img src="https://i.ibb.co/F3hLKcX/download.gif" alt="download" border="0"></a>
+# 𝓗𝓲, 𝓲'𝓶 𝓐𝓴𝓾𝓶𝓪    <a href="https://imgbb.com/"><img src="https://i.ibb.co/F3hLKcX/download.gif" alt="download" border="0"></a>
 <h3 align="center">| 𝐋𝐞𝐚𝐫𝐧𝐞𝐫 | 𝐒𝐭𝐮𝐝𝐞𝐧𝐭 |</h3>
 
 - 😈 𝐃𝐞𝐦𝐨𝐧 𝐋𝐨𝐫𝐝 !!

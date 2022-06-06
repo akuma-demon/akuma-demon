@@ -8,7 +8,7 @@
     </a>
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/tb1W7wv/3020b7426ea043148427cf054bf94a6a.gif" alt="3020b7426ea043148427cf054bf94a6a" border="0"></a>
-# 𝓗𝓲, 𝓲'𝓶 𝓐𝓴𝓾𝓶𝓪 <a href="https://imgbb.com/"><img src="https://i.ibb.co/0cWJjfn/f039ec7019159bd9554a3cc3adc38325.gif" alt="f039ec7019159bd9554a3cc3adc38325" border="0"></a>
+# 𝓗𝓲, 𝓲'𝓶 𝓐𝓴𝓾𝓶𝓪 <a href="https://imgbb.com/"><img src="https://i.ibb.co/JsvQF33/e56cae40e6607f1ceacbc9cf68e0b62c.gif" alt="e56cae40e6607f1ceacbc9cf68e0b62c" border="0"></a>
 <h3 align="center">| 𝐋𝐞𝐚𝐫𝐧𝐞𝐫 | 𝐒𝐭𝐮𝐝𝐞𝐧𝐭 |</h3>
 
 - 😈 𝐃𝐞𝐦𝐨𝐧 𝐋𝐨𝐫𝐝 !!
@@ -30,7 +30,7 @@
 <img align="right" alt="count" src="https://count.getloli.com/get/@:akumasugi?theme=rule34">
   
 
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/JsvQF33/e56cae40e6607f1ceacbc9cf68e0b62c.gif" alt="e56cae40e6607f1ceacbc9cf68e0b62c" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/mzs0gTg/a14cc9ee1c965431d6ebd0530bc532d4.gif" alt="a14cc9ee1c965431d6ebd0530bc532d4" border="0"></a>
   
 [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=0bayzsrvnvivnrnxg4te2b1vb&cover_image=true&theme=default)](https://github.com/akumasugi/akumasugi)
 
@@ -40,7 +40,7 @@
 
   
   
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/mzs0gTg/a14cc9ee1c965431d6ebd0530bc532d4.gif" alt="a14cc9ee1c965431d6ebd0530bc532d4" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/1QFdpyn/c867f6e32eb7bc81760015dfc08f4d05.gif" alt="c867f6e32eb7bc81760015dfc08f4d05" border="0"></a>
 
 
 ## 𝓕𝓸𝓵𝓵𝓸𝔀 𝓶𝓮 𝓸𝓷 ( ꈍᴗꈍ)

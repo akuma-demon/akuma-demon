@@ -8,7 +8,7 @@
     </a>
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/tb1W7wv/3020b7426ea043148427cf054bf94a6a.gif" alt="3020b7426ea043148427cf054bf94a6a" border="0"></a>
-# 私は豪鬼 𝐇𝐢, 𝐈'𝐦 𝐀-𝐊-𝐔-𝐌-𝐀 <a href="https://imgbb.com/"><img src="https://i.ibb.co/JsvQF33/e56cae40e6607f1ceacbc9cf68e0b62c.gif" alt="e56cae40e6607f1ceacbc9cf68e0b62c" border="0"></a>
+# 𝐇𝐢, 𝐈'𝐦 𝐀𝐊𝐔𝐌𝐀 <a href="https://imgbb.com/"><img src="https://i.ibb.co/JsvQF33/e56cae40e6607f1ceacbc9cf68e0b62c.gif" alt="e56cae40e6607f1ceacbc9cf68e0b62c" border="0"></a>
 <h3 align="center">| 𝐋𝐞𝐚𝐫𝐧𝐞𝐫 | 𝐒𝐭𝐮𝐝𝐞𝐧𝐭 |</h3>
 
 - 😈 𝐃𝐞𝐦𝐨𝐧 𝐋𝐨𝐫𝐝 !!

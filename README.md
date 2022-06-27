@@ -6,9 +6,14 @@
             alt="Typing SVG"
         />
     </a>
-
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/SwPDgx0/a58e55bb82120cbeed6a09e6613eb82b.gif" alt="a14cc9ee1c965431d6ebd0530bc532d4" border="0"></a>
-# 𝐇𝐢, 𝐈'𝐦 𝐀𝐊𝐔𝐌𝐀 <a href="https://imgbb.com/"><img src="https://i.ibb.co/fxhXdMW/tumblr-566abece08f918a36a2a684a7240dff8-93a44c10-540.gif" alt="e56cae40e6607f1ceacbc9cf68e0b62c" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/SwPDgx0/a58e55bb82120cbeed6a09e6613eb82b.gif" alt="vanitas" border="0"></a>
+    <!-- Typing SVG -->
+<p align="center">
+<a href="https://git.io/J0hKr">
+        <img
+        src="https://readme-typing-svg.herokuapp.com?font=Courgette&size=30&color=1B961A&lines=Hi....%F0%9F%91%8B.....;It's+me....;Guess+who%3F;akuma+%F0%9F%98%8D"
+            alt="Typing SVG"
+        /> <a href="https://imgbb.com/"><img src="https://i.ibb.co/hHGf8rg/vanitass.gif" alt="vanitass" border="0"></a>
 <h3 align="center">| 𝐋𝐞𝐚𝐫𝐧𝐞𝐫 | 𝐒𝐭𝐮𝐝𝐞𝐧𝐭 |</h3>
 
 - 😈 𝐃𝐞𝐦𝐨𝐧 𝐋𝐨𝐫𝐝 !!
@@ -30,7 +35,7 @@
 <img align="right" alt="count" src="https://count.getloli.com/get/@:akumasugi?theme=rule34">
   
 
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/mzs0gTg/a14cc9ee1c965431d6ebd0530bc532d4.gif" alt="a14cc9ee1c965431d6ebd0530bc532d4" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/VYpQHTC/vaannitas.gif" alt="vaannitas" border="0"></a>
   
 [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=0bayzsrvnvivnrnxg4te2b1vb&cover_image=true&theme=default)](https://github.com/akumasugi/akumasugi)
 
@@ -40,7 +45,7 @@
 
   
   
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/1QFdpyn/c867f6e32eb7bc81760015dfc08f4d05.gif" alt="c867f6e32eb7bc81760015dfc08f4d05" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/3T9gkCg/jeanne.webp" alt="jeanne" border="0"></a>
 
 
 ## 𝓕𝓸𝓵𝓵𝓸𝔀 𝓶𝓮 𝓸𝓷 ( ꈍᴗꈍ)

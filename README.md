@@ -29,15 +29,15 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=akumasugi&label=Profile%20views&color=0e75b6&style=flat" alt="akumasugi" /> </p>
 <p align="left"> <a href="https://github-profile-trophy.vercel.app/?username=ryo-ma&no-frame=true
 
-<img src="https://github-profile-trophy.vercel.app/?username=akuma-demon" alt="akuma-demon" /></a> </p>
+<img src="https://github-profile-trophy.vercel.app/?username=akumasugi" alt="akumasugi" /></a> </p>
   
  
-<img align="right" alt="count" src="https://count.getloli.com/get/@:akuma-demon?theme=rule34">
+<img align="right" alt="count" src="https://count.getloli.com/get/@:akumasugi?theme=rule34">
   
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/VYpQHTC/vaannitas.gif" alt="vaannitas" border="0"></a>
   
-[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=0bayzsrvnvivnrnxg4te2b1vb&cover_image=true&theme=default)](https://github.com/akuma-demon/akuma-demon)
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=0bayzsrvnvivnrnxg4te2b1vb&cover_image=true&theme=default)](https://github.com/akumasugi/akumasugi)
 
 <img src="https://github-readme-stats.vercel.app/api?username=akumasugi&show_icons=true&theme=blue&show_owner=true&count_private=true">
   

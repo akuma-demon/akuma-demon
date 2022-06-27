@@ -29,15 +29,15 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=akumasugi&label=Profile%20views&color=0e75b6&style=flat" alt="akumasugi" /> </p>
 <p align="left"> <a href="https://github-profile-trophy.vercel.app/?username=ryo-ma&no-frame=true
 
-<img src="https://github-profile-trophy.vercel.app/?username=akumasugi" alt="akumasugi" /></a> </p>
+<img src="https://github-profile-trophy.vercel.app/?username=akuma-demon" alt="akuma-demon" /></a> </p>
   
  
-<img align="right" alt="count" src="https://count.getloli.com/get/@:akumasugi?theme=rule34">
+<img align="right" alt="count" src="https://count.getloli.com/get/@:akuma-demon?theme=rule34">
   
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/VYpQHTC/vaannitas.gif" alt="vaannitas" border="0"></a>
   
-[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=0bayzsrvnvivnrnxg4te2b1vb&cover_image=true&theme=default)](https://github.com/akumasugi/akumasugi)
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=0bayzsrvnvivnrnxg4te2b1vb&cover_image=true&theme=default)](https://github.com/akuma-demon/akuma-demon)
 
 <img src="https://github-readme-stats.vercel.app/api?username=akumasugi&show_icons=true&theme=blue&show_owner=true&count_private=true">
   
@@ -49,7 +49,7 @@
 
 
 ## 𝓕𝓸𝓵𝓵𝓸𝔀 𝓶𝓮 𝓸𝓷 ( ꈍᴗꈍ)
-**Github** [<img src="https://img.icons8.com/nolan/240/github.png" alt='github' height='32'>](https://github.com/akumasugi) | **Instagram** [<img src="https://img.icons8.com/nolan/240/instagram-new.png" alt='instagram' height='32'>](https://www.instagram.com/akuma__24/) | **YouTube** [<img src="https://img.icons8.com/nolan/240/youtube.png" alt='YouTube' height='32'>](https://www.youtube.com/channel/UChrGVH0nOxMg6zk6YAr2TXg)
+**Github** [<img src="https://img.icons8.com/nolan/240/github.png" alt='github' height='32'>](https://github.com/akuma-demon) | **Instagram** [<img src="https://img.icons8.com/nolan/240/instagram-new.png" alt='instagram' height='32'>](https://www.instagram.com/akuma__24/) | **YouTube** [<img src="https://img.icons8.com/nolan/240/youtube.png" alt='YouTube' height='32'>](https://www.youtube.com/channel/UChrGVH0nOxMg6zk6YAr2TXg)
 
 
 ## 𝓗𝓪𝓿𝓮 𝓪 𝓰𝓻𝓮𝓪𝓽 𝓭𝓪𝔂 𝓼𝓮𝓮 𝔂𝓪 💫

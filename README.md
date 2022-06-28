@@ -2,7 +2,7 @@
 <p align="center">
     <a href="https://git.io/J0hKr">
         <img
-        src="https://readme-typing-svg.herokuapp.com?size=30&width=800&lines=𝐊𝐨𝐧𝐧𝐢𝐜𝐡𝐢𝐰𝐚𝐚𝐚+𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐭𝐨+𝐦𝐲+𝐩𝐫𝐨𝐟𝐢𝐥𝐞..."
+        src="https://readme-typing-svg.herokuapp.com?size=30&width=800&lines=𝐊𝐨𝐧𝐧𝐢𝐜𝐡𝐢𝐰𝐚𝐚𝐚+𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐭𝐨+𝐦𝐲+𝐩𝐫𝐨𝐟𝐢𝐥𝐞...🤩"
             alt="Typing SVG"
         />
     </a>
@@ -11,7 +11,7 @@
 <p align="center">
 <a href="https://git.io/J0hKr">
         <img
-        src="https://readme-typing-svg.herokuapp.com?font=Courgette&size=30&color=1B961A&lines=Hi....%F0%9F%91%8B.....;It's+me....;Guess+who%3F;akuma+%F0%9F%98%8D"
+        src="https://readme-typing-svg.herokuapp.com?font=Courgette&size=30&color=1B961A&lines=𝐇𝐢....%F0%9F%91%8B.....;𝐢𝐭'𝐬+𝐦𝐞....;𝐆𝐮𝐞𝐬𝐬+𝐰𝐡𝐨%3F;𝐃𝐞𝐦𝐨𝐧😈"
             alt="Typing SVG"
         /> <a href="https://imgbb.com/"><img src="https://i.ibb.co/hHGf8rg/vanitass.gif" alt="vanitass" border="0"></a>
 <h3 align="center">| 𝐋𝐞𝐚𝐫𝐧𝐞𝐫 | 𝐒𝐭𝐮𝐝𝐞𝐧𝐭 |</h3>

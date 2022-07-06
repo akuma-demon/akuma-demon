@@ -37,7 +37,7 @@
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/VYpQHTC/vaannitas.gif" alt="vaannitas" border="0"></a>
   
-[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=0bayzsrvnvivnrnxg4te2b1vb&cover_image=true&theme=default)](https://github.com/akumasugi/akumasugi)
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=0bayzsrvnvivnrnxg4te2b1vb&cover_image=true&theme=default)](https://github.com/akuma-demon/akuma-demon)
 
 <img src="https://github-readme-stats.vercel.app/api?username=akuma-demon&show_icons=true&theme=blue&show_owner=true&count_private=true">
   

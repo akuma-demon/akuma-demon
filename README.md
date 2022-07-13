@@ -24,9 +24,9 @@
     
 - 😌 𝐥𝐢𝐤𝐞 𝐭𝐨 𝐥𝐞𝐚𝐫𝐧 𝐧𝐞𝐰 𝐭𝐡𝐢𝐧𝐠𝐬.. 
     
-- 🤫 𝐟𝐮𝐧 𝐟𝐚𝐜𝐭 𝐢 𝐥𝐢𝐤𝐞 𝐭𝐨 𝐰𝐚𝐭𝐜𝐡 𝐚𝐧𝐢𝐦𝐞 & 𝐤𝐝𝐫𝐚𝐦𝐚𝐬 
+- 🤫 𝐟𝐮𝐧 𝐟𝐚𝐜𝐭 𝐢 𝐥𝐢𝐤𝐞 𝐭𝐨 𝐰𝐚𝐭𝐜𝐡 𝐚𝐧𝐢𝐦𝐞 & 𝐤𝐝𝐫𝐚𝐦𝐚 
 
-- ✨ 𝐡𝐨𝐰 𝐭𝐨 𝐫𝐞𝐚𝐜𝐡 𝐦𝐞 ... [![WhatsApp carter](https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/917892202052)
+- ✨ 𝐡𝐨𝐰 𝐭𝐨 𝐫𝐞𝐚𝐜𝐡 𝐦𝐞... [![WhatsApp carter](https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/917892202052)
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=akumasugi&label=Profile%20views&color=0e75b6&style=flat" alt="akuma-demon" /> </p>
 <p align="left"> <a href="https://github-profile-trophy.vercel.app/?username=ryo-ma&no-frame=true

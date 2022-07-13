@@ -28,10 +28,10 @@
 
 - ✨ 𝐡𝐨𝐰 𝐭𝐨 𝐫𝐞𝐚𝐜𝐡 𝐦𝐞 ... [![WhatsApp carter](https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/917892202052)
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=akumasugi&label=Profile%20views&color=0e75b6&style=flat" alt="akumasugi" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=akumasugi&label=Profile%20views&color=0e75b6&style=flat" alt="akuma-demon" /> </p>
 <p align="left"> <a href="https://github-profile-trophy.vercel.app/?username=ryo-ma&no-frame=true
 
-<img src="https://github-profile-trophy.vercel.app/?username=akumasugi" alt="akumasugi" /></a> </p>
+<img src="https://github-profile-trophy.vercel.app/?username=akuma-demon" alt="akuma-demon" /></a> </p>
   
  
 <img align="right" alt="count" src="https://count.getloli.com/get/@:akumasugi?theme=rule34">

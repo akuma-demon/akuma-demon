@@ -37,7 +37,7 @@
 <img align="right" alt="count" src="https://count.getloli.com/get/@:akumasugi?theme=rule34">
   
 
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/XCfnMB9/vanitass.webp" alt="vaannitas" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/LJkfTpf/vanitas.webp" alt="vaannitas" border="0"></a>
   
 [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=0bayzsrvnvivnrnxg4te2b1vb&cover_image=true&theme=default)](https://github.com/akuma-demon/akuma-demon)
 
